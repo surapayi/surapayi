@@ -19,5 +19,6 @@ Open to Business Analyst and Technical BA roles, Seattle area or remote. 👀
 [LinkedIn link](https://www.linkedin.com/in/surapa-yi-b5423416a/)
 
 ## Fun Facts
-I am from Bangkok, Thailand, the land of smile and amazing food! I recently moved to Washington and would love to meet local people!
-I love learning new things, doing art and meeting people. 
+I am from Bangkok, Thailand, the land of smile and amazing food!😊
+I recently moved to Washington and would love to meet local people!✈️
+I love learning new things, doing art and meeting people. 🙌
